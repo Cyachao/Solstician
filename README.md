@@ -1,4 +1,4 @@
-- Howdy, I'm PogofruitKM or LarsKM
+- Howdy, I'm Pogofruit (LarsKM or Solstician)
 - My other account is compromised, and I understand this loss.
 - I make nothing, I THINK
 - I code for my boredom!
